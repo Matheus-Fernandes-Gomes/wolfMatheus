@@ -9,9 +9,9 @@ I am currently a partner and owner of [HM Vendas] (https://www.instagram.com/hmm
 
 I am a graduate student in ** Computer Engineering - UFOP ** based in João Monlevade.
 
-I studied for three periods in the electrical engineering undergraduate course - DOCTUM.
+I studied for three periods in the electrical engineering undergraduate course - DOCTUM based in João Monlevadep.
 
-I also have training as a technician in electronics - Senai, Nansen Araújo
+I also have training as a technician in electronics - Senai, Nansen Araújo based in João Monlevade.
 
 I try to collaborate on projects that will add knowledge to me.
 
